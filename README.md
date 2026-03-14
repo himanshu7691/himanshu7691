@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on Power BI.<br>I have recently passed from Lovely Professional University.
+I'm currently working on Power BI.<br>I have completed my Bachelor Of Computer Applications from Lovely Professional University.<br>Currently Studying at University Of Wollongong.
 
 
 ## 🌐 Socials:
